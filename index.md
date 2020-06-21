@@ -8,3 +8,5 @@ Marvin is several times older than the universe itself! What else could have mad
 * loyal to the end of the universe
 
 > Here I am, brain the size of a planet, and they tell me to take you up to the bridge. Call that job satisfaction? 'Cos I don't.
+
+<img src="https://vignette.wikia.nocookie.net/hitchhikers/images/a/a4/Marvin.jpg/revision/latest?cb=20100530114055" />
